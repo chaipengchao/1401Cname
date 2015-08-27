@@ -1,2 +1,0 @@
-# 1401Cname
-namenmaenmaenmaemasmd
